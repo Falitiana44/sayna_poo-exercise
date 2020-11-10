@@ -1,1 +1,0 @@
-# sayna_poo-exercise
